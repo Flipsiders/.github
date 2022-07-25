@@ -1,1 +1,1 @@
-# .github
+We are 🧠 Flipsiders on FlipsideCrypto
